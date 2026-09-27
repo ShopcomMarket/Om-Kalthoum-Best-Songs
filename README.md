@@ -1,13 +1,13 @@
 <img width="1254" height="1254" alt="روائع كوكب الشرق - أجمل أغاني أم كلثوم" src="https://github.com/user-attachments/assets/85196dbc-0d14-467b-bc97-4543ba484522" />
 
 Download link :
-https://www.shopcom.tn/product/روائع-كوكب-الشرق-أجمل-أغاني-أم-كلثوم/download
+https://www.shopcom.tn/product/om-kalthoum-best-songs/download
 
 Torrent download link :
-https://www.shopcom.tn/product/روائع-كوكب-الشرق-أجمل-أغاني-أم-كلثوم/torrent-download
+https://www.shopcom.tn/product/om-kalthoum-best-songs/torrent-download
 
 Purchase link :
-https://www.shopcom.tn/product/روائع-كوكب-الشرق-أجمل-أغاني-أم-كلثوم/
+https://www.shopcom.tn/product/om-kalthoum-best-songs/
 
 Product Price : 25 $
 
