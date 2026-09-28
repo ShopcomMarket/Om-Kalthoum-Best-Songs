@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/om-kalthoum-best-songs/
 Product Price : 25 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
